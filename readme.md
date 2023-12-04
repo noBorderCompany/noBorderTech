@@ -1,0 +1,3 @@
+Using crypto currencies has never been this easy...
+
+noBorder.tech offers payment solutions based on cryptocurrencies. Do you want your customers to be able to pay with cryptocurrencies? Or have a personal payment page that you can easily share with others? These services, as well as the possibility of direct sales of goods and services, professional web services for programmers, and dedicated wallets, are provided for free.
